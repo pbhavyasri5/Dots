@@ -8,4 +8,4 @@ Want to interact with artisans?
 Customised art?
 
 Dots is for you!
-COnnecting hearts to Arts
+Connecting hearts to Arts
